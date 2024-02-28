@@ -1,2 +1,2 @@
-Segunda desafio da escola DNC
+Segundo desafio da escola DNC
 
